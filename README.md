@@ -1,2 +1,1 @@
-# ThunderShine.github.io
-My Welcome Page
+page will update soon
